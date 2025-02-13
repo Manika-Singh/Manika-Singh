@@ -8,9 +8,9 @@
 
 - 🌱 I’m currently learning **Full - Stack , Data Structure and Algorithm**
 
-- 📫 How to reach me **https://www.linkedin.com/in/manika-singh-620430288/**
+- 📫 How to reach me **https://www.linkedin.com/in/manika-singh13**
 
-- ⚡ Fun fact **I don't have one**
+- ⚡ Fun fact **I don't have one, I've got many~~**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
